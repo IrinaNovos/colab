@@ -1,3 +1,1 @@
 RIP
-
-i love minecraft
